@@ -1,1 +1,1 @@
-my second commit
+I come from Ghana in Africa
